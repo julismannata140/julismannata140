@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @julismannata140
 - 👀 I’m interested in https://paushoki-36.shop/https://paushoki-36.shop/
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning scatter on
 - 💞️ I’m looking to collaborate on julismannata140
-- 📫 How to reach me ...
+- 📫 How to reach me super bersar win
 - 😄 Pronouns: ...
 - ⚡ Fun fact: on
 
